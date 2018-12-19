@@ -1,2 +1,2 @@
 # Christine-Portfolio
-Project
+690 Final Research Project
